@@ -2,7 +2,7 @@
 
 **@ghostrdp_bot is a scammer**
 
-@ghostrdp_bot and @AliceExploit are accomplices.
+[ghostrdp_bot](https://t.me/ghostrdp_bot) and [AliceExploit](https://t.me/AliceExploit) are accomplices.
 They create the website www.ghostnetrdp.com to scam server rentals.
 If you transfer cryptocurrency to them, they will disappear immediately. 
 Be careful
