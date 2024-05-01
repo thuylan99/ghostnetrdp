@@ -1,4 +1,5 @@
 # www.ghostnetrdp.com is a scammer website
+# ghostnetrdp is scammer
 
 **@ghostrdp_bot is a scammer**
 
